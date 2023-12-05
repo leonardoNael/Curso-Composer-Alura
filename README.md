@@ -1,0 +1,8 @@
+# Documentação do componente
+
+~
+~
+~
+~
+~
+~
